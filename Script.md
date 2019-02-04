@@ -20,6 +20,8 @@ As he mooved slowly.
 As he walked behind the zoo he could see the trees and thick floiage growing above the heavy stone wall that ran behind the zoo; and hear the sounds of animals in the distance.
 Jack had heard the sound before, but today there was a new sound, sort of a cross between an angelic horn and an elephant’s trumpet.
 He stopped to listen and noticed a heavy wooden door in the zoo wall was ajar.
+ 
+Jack met a man named Paul who was a zoo keeper
 
 Normally Jack would leave well enough alone, but he was worried that an animal might escape.
 He stuck his head in the door, the color of the foliage was intense greens, browns and chartreuse, he called out for a zoo keeper but got no response.
